@@ -26,4 +26,4 @@ Another gem in the Gorge, this hike takes you away from the vistas and leads you
 ## 5. [Saddle Mountain](https://www.alltrails.com/trail/us/oregon/saddle-mountain)
 ![Picture of a photographer atop a spire at Saddle Mountain](https://www.wweek.com/resizer/89Knyp5dIDt_0M5PtDWhu2MP0JI=/1200x0/filters:quality(100)/s3.amazonaws.com/arc-wordpress-client-uploads/wweek/wp-content/uploads/2017/03/16220042/Going_Coastal_Outdoor_Guide_Saddle-Mountain_Nick-Carnera.jpg)
 
-If you have ever headed out to Short Sands or to see the Goonies Rock, chances are you have passed the trailhead for Saddle Mountain. After a narrow winding drive to the trailhead, the path to the summit shoots you up to amazing views of western Oregon. On clear days, one may even be able to glimpse the Pacific Ocean from the top. 
+If you have ever headed out to Short Sands or to see the Goonies Rock, chances are you have passed the trailhead for Saddle Mountain. After a narrow winding drive to the trailhead, the path to the summit shoots you up to amazing views of western Oregon. On clear days, one may even be able to glimpse the Pacific Ocean from the top. Well worth the drive!
